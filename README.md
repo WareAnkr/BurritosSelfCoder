@@ -1,0 +1,2 @@
+# BurritosSelfCoder
+So this retard Burritos#5705 likes to sell public shit and be an overall scumbag to friends, I ended up downloading "his" fortnite cheat dumping it then OPENINIGN WITH FUCKING NOTEPAD since this retard self coder uses UrlDownloadToA letting you see all his shit and his downloasds. In short hes selling public shit scamming people not even trying to paste just uploading a shit paste and claiming he self coded LOL
